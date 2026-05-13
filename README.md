@@ -1,6 +1,6 @@
 <div align="center">
 
-[Request or remove here(https://pt-stars.atabook.org/)
+[Request or remove here](https://pt-stars.atabook.org/)
 
 Please do not spam the same person you are requesting / removing somebody off here!
 
