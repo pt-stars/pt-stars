@@ -23,6 +23,8 @@ HONORABLE MENTIONS
 
 [dirkhal](https://github.com/dirkhal) - Dirk Strider of Pony Town
 
+[sorrowdms13](https://github.com/sorrowdms13) - Polarcub of Pony Town
+
 
 <div align="center">
 
