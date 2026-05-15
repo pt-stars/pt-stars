@@ -25,6 +25,8 @@ HONORABLE MENTIONS
 
 [sorrowdms13](https://github.com/sorrowdms13) - Polarcub of Pony Town
 
+[kingofalejandro](https://github.com/kingofalejandro) - Sonic of Pony Town
+
 
 <div align="center">
 
