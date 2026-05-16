@@ -19,8 +19,6 @@ AWESOME PEOPLE
 
 HONORABLE MENTIONS
 
-[cIownzy](https://github.com/cIownzy) - Looey of Pony Town
-
 [dirkhal](https://github.com/dirkhal) - Dirk Strider of Pony Town
 
 [sorrowdms13](https://github.com/sorrowdms13) - Polarcub of Pony Town
