@@ -30,6 +30,10 @@ HONORABLE MENTIONS
 
 [Jane-Yuri-Shelly](https://github.com/Jane-Yuri-Shelly) - Nepeta Leijon of Pony Town
 
+[knighofttime](https://github.com/knighofttime) - Dave Strider of Pony Town
+
+[SHlSHIRO](https://github.com/SHlSHIRO) - Shishiro Botan of Pony Town
+
 <div align="center">
 
 We will not be adding anybody in here that is deemed problematic. If there is anybody here that is problematic please let us know by contacting us through our guest book.
