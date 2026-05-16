@@ -9,12 +9,12 @@ Hi! we are pt-stars and we are an account based off [pt-awards](https://github.c
 
 PRETTY SKINS
 
-[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT)
+[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3)
 
 
 AWESOME PEOPLE
 
-[hearts4cyno](https://github.com/hearts4cyno) [wolfcutiee](https://github.com/wolfcutiee)
+[hearts4cyno](https://github.com/hearts4cyno) [wolfcutiee](https://github.com/wolfcutiee) [yubelsrevenge](https://github.com/yubelsrevenge)
 
 
 HONORABLE MENTIONS
@@ -27,6 +27,11 @@ HONORABLE MENTIONS
 
 [kingofalejandro](https://github.com/kingofalejandro) - Sonic of Pony Town
 
+[loonaclows](https://github.com/loonaclows) - Taimc of Pony Town
+
+[imisssnow](https://github.com/imisssnow) - Saparata of Pony Town
+
+[BluestOfTheBlus](https://github.com/BluestOfTheBlus) - Ldshadowlady of Pony Town
 
 <div align="center">
 
