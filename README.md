@@ -9,7 +9,7 @@ Hi! we are pt-stars and we are an account based off [pt-awards](https://github.c
 
 PRETTY SKINS
 
-[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3)
+[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3) [CakeFruitDuo](https://github.com/CakeFruitDuo)
 
 
 AWESOME PEOPLE
@@ -30,6 +30,8 @@ HONORABLE MENTIONS
 [imisssnow](https://github.com/imisssnow) - Saparata of Pony Town
 
 [BluestOfTheBlus](https://github.com/BluestOfTheBlus) - Ldshadowlady of Pony Town
+
+[Jane-Yuri-Shelly](https://github.com/Jane-Yuri-Shelly) - Nepeta Leijon of Pony Town
 
 <div align="center">
 
