@@ -34,4 +34,6 @@ HONORABLE MENTIONS
 
 We will not be adding anybody in here that is deemed problematic. If there is anybody here that is problematic please let us know by contacting us through our guest book.
 
+Please note that not everybody you request or even yourself will be added in as we have reasons for that.
+
 We are an account inspired by [pt-awards](https://github.com/pt-awards) & [title-town](https://github.com/title-town)
