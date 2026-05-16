@@ -34,6 +34,8 @@ HONORABLE MENTIONS
 
 [SHlSHIRO](https://github.com/SHlSHIRO) - Shishiro Botan of Pony Town
 
+[ihasaface-lulz](https://github.com/ihasaface-lulz) - Wifies of Pony Town
+
 <div align="center">
 
 We will not be adding anybody in here that is deemed problematic. If there is anybody here that is problematic please let us know by contacting us through our guest book.
