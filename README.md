@@ -2,8 +2,7 @@
 
 [REQUEST / REMOVE here](https://pt-stars.atabook.org/)
 
-Please do not spam the same person you are requesting / removing somebody off here
-
+Please do not spam the same person you are requesting / removing off here
 
 PRETTY SKINS
 
