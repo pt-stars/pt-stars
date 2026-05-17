@@ -24,8 +24,6 @@ HONORABLE MENTIONS
 
 [loonaclows](https://github.com/loonaclows) - Taimc of Pony Town
 
-[imisssnow](https://github.com/imisssnow) - Saparata of Pony Town
-
 [BluestOfTheBlus](https://github.com/BluestOfTheBlus) - Ldshadowlady of Pony Town
 
 [Jane-Yuri-Shelly](https://github.com/Jane-Yuri-Shelly) - Nepeta Leijon of Pony Town
