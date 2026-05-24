@@ -27,8 +27,6 @@ HONORABLE MENTIONS
 
 [BluestOfTheBlus](https://github.com/BluestOfTheBlus) - Ldshadowlady of Pony Town
 
-[Jane-Yuri-Shelly](https://github.com/Jane-Yuri-Shelly) - Nepeta Leijon of Pony Town
-
 [knighofttime](https://github.com/knighofttime) - Dave Strider of Pony Town
 
 [SHlSHIRO](https://github.com/SHlSHIRO) - Shishiro Botan of Pony Town
@@ -43,7 +41,11 @@ HONORABLE MENTIONS
 
 [maeIstrom](https://github.com/maeIstrom) - Manepear of Pony Town
 
+[C4PT0RB0T](https://github.com/C4PT0RB0T) - Ultimate Dirk of Pony Town
 
+[themockups](https://github.com/themockups) - Alfred of Pony Town
+
+[HIGUGETO](https://github.com/HIGUGETO) - Geto Suguru of Pony Town
 
 <div align="center">
 
