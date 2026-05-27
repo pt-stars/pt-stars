@@ -41,13 +41,19 @@ HONORABLE MENTIONS
 
 [maeIstrom](https://github.com/maeIstrom) - Manepear of Pony Town
 
-[C4PT0RB0T](https://github.com/C4PT0RB0T) - Ultimate Dirk of Pony Town
+[uItdirk](https://github.com/uItdirk) - Ultimate Dirk of Pony Town
 
 [themockups](https://github.com/themockups) - Alfred of Pony Town
 
 [HIGUGETO](https://github.com/HIGUGETO) - Geto Suguru of Pony Town
 
+[smallkittens](https://github.com/smallkittens) - Clara Valac of Pony Town
+
+[regoregitatedsacrifice](https://github.com/regoregitatedsacrifice) - Bakugo of Pony Town
+
 <div align="center">
+
+This is being updated very slowly so please be patient with us! <3
 
 We will not be adding anybody in here that is deemed problematic. If there is anybody here that is problematic please let us know by contacting us through our guest book.
 
