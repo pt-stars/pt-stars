@@ -6,7 +6,7 @@ Please do not spam the same person you are requesting / removing off here
 
 PRETTY SKINS
 
-[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [uItdirk](https://github.com/uItdirk) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3) [CakeFruitDuo](https://github.com/CakeFruitDuo) [bigguykoi](https://github.com/bigguykoi) [NER0O9](https://github.com/NER0O9) [puppyfes](https://github.com/puppyfes) [nomudae](https://github.com/nomudae) [vivibasu](https://github.com/vivibasu) [purefatal](https://github.com/purefatal) [tarcoxy](https://github.com/tarcoxy) [d4ybreakduo](https://github.com/d4ybreakduo) [infugue
+[CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [directfies](https://github.com/directfies) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3) [CakeFruitDuo](https://github.com/CakeFruitDuo) [bigguykoi](https://github.com/bigguykoi) [NER0O9](https://github.com/NER0O9) [puppyfes](https://github.com/puppyfes) [nomudae](https://github.com/nomudae) [vivibasu](https://github.com/vivibasu) [purefatal](https://github.com/purefatal) [tarcoxy](https://github.com/tarcoxy) [d4ybreakduo](https://github.com/d4ybreakduo) [infugue
 ](https://github.com/infugue)
 
 
