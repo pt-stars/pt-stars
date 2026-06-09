@@ -17,7 +17,7 @@ AWESOME PEOPLE
 
 HONORABLE MENTIONS
 
-[dirkhal](https://github.com/dirkhal) - Dirk Strider of Pony Town
+[TlMAEUS](https://github.com/TlMAEUS) - Dirk Strider of Pony Town
 
 [sorrowdms13](https://github.com/sorrowdms13) - Polarcub of Pony Town
 
