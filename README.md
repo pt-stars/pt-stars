@@ -4,6 +4,8 @@
 
 Please do not spam the same person you are requesting / removing off here
 
+LAST UPDATED 6/16/26
+
 PRETTY SKINS
 
 [CATAL0G](https://github.com/CATAL0G) [timaeusTT](https://github.com/timaeusTT) [directfies](https://github.com/directfies) [itadei](https://github.com/itadei) [wifiesss](https://github.com/wifiesss) [5poke](https://github.com/5poke) [bIoodheart](https://github.com/bIoodheart) [abyssegoistT](https://github.com/abyssegoistT) [ClownPierce3](https://github.com/ClownPierce3) [CakeFruitDuo](https://github.com/CakeFruitDuo) [bigguykoi](https://github.com/bigguykoi) [NER0O9](https://github.com/NER0O9) [puppyfes](https://github.com/puppyfes) [nomudae](https://github.com/nomudae) [vivibasu](https://github.com/vivibasu) [purefatal](https://github.com/purefatal) [tarcoxy](https://github.com/tarcoxy) [d4ybreakduo](https://github.com/d4ybreakduo) [infugue
@@ -50,6 +52,10 @@ HONORABLE MENTIONS
 [smallkittens](https://github.com/smallkittens) - Clara Valac of Pony Town
 
 [regoregitatedsacrifice](https://github.com/regoregitatedsacrifice) - Bakugo of Pony Town
+
+[timaeusTT](https://github.com/timaeusTT) - Tenna of Pony Town
+
+[directfies](https://github.com/directfies) - Spamton of Pony Town
 
 <div align="center">
 
