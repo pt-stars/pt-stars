@@ -6,6 +6,7 @@ Please do not spam the same person you are requesting / removing off here
 
 Apologies for the late updates and inactivity everyone! I'm currently on my way to remaking this whole page. I've updated the list but I'm sure there are still some that have yet not been added in yet but I will get to it eventually. ^^ A strawpage will be added soon for private reports & requests to avoid any drama in the atabook.
 
+Also please feel free to recommend me some categories that should be added in here!
 
 LAST UPDATED 7/23/26
 
