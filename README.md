@@ -4,7 +4,10 @@
 
 Please do not spam the same person you are requesting / removing off here
 
-LAST UPDATED 6/16/26
+Apologies for the late updates and inactivity everyone! I'm currently on my way to remaking this whole page. I've updated the list but I'm sure there are still some that have yet not been added in yet but I will get to it eventually. ^^ A strawpage will be added soon for private reports & requests to avoid any drama in the atabook.
+
+
+LAST UPDATED 7/23/26
 
 PRETTY SKINS
 
@@ -17,11 +20,27 @@ AWESOME PEOPLE
 [hearts4cyno](https://github.com/hearts4cyno) [wolfcutiee](https://github.com/wolfcutiee) [yubelsrevenge](https://github.com/yubelsrevenge)
 
 
-HONORABLE MENTIONS
+CHARACTERS OF PONY TOWN
 
-[TlMAEUS](https://github.com/TlMAEUS) - Dirk Strider of Pony Town
+[DreamIy](https://github.com/DreamIy) - Karkat Vantas of Pony Town
+
+[ReplicaOfAffection](https://github.com/ReplicaOfAffection) - Fukuna
+
+[gfpaw](https://github.com/gfpaw) - Cutiespace of Pony Town
 
 [sorrowdms13](https://github.com/sorrowdms13) - Polarcub of Pony Town
+
+[kiwiconicc](https://github.com/kiwiconicc) - Saiki Kusuo of Pony Town
+
+[Sc4r7V4mp1r3](https://github.com/Sc4r7V4mp1r3) - Fischl of Pony Town
+
+[ppawncakezz](https://github.com/ppawncakezz) - Marshmallow Bunny Cookie of Pony Town
+
+[SQUEVIL](https://github.com/SQUEVIL) - Squiddo of Pony Town
+
+[angxlpraize](https://github.com/angxlpraize) - Nene Yashiro of Pony Town
+
+[Xaplastcore](https://github.com/Xaplastcore) - Optimus Prime of Pony Town
 
 [kingofalejandro](https://github.com/kingofalejandro) - Sonic of Pony Town
 
